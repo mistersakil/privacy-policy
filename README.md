@@ -1,4 +1,4 @@
-## Privacy Policy for Sakil Mahmud
+## Privacy Policy
 
 One of our main priorities is the privacy of our visitors. This Privacy Policy document contains types of information that is collected and recorded me how we use it.
 
